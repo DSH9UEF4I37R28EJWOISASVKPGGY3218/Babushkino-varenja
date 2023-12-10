@@ -1,2 +1,2 @@
 # Babushkino-varenja
-receptes
+Tatjana Sedunova 10 a
